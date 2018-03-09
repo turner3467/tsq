@@ -18,4 +18,4 @@ As we are based in the UK there will, almost unavoidably, be a bias towards UK t
 
 We will be trying publish an article once per week, but as we are tied down at full time jobs and we want to cover our topics in detail it might not be possible to keep this rate up consistently. Anyway we've rambled on quite enough for our first piece, all that remains to be said is that we hope you enjoy our upcoming articles and that you find them thought provoking.
 
-Welcome, and thank you for reading!
+Welcome and thank you for reading!
